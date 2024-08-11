@@ -1,1 +1,1 @@
-# 2024.yerel.secim.sonuclar-.io
+# 2024.yerel.secim.sonuclar.github.io
